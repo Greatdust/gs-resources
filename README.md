@@ -1,0 +1,1 @@
+# gs-resourcessad撒多
